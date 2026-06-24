@@ -1,4 +1,4 @@
-<h2>ARBOR • HE/IT/SHE • 25+ • AROSPEC PANSEXUAL • TAKEN</h2>
+<h2>ARBOR / BREN • HE/IT/SHE • 25+ • AROSPEC PANSEXUAL • TAKEN</h2>
 
 > [!IMPORTANT]
 > This user has AUDHD, OCD, and Social Anxiety!
