@@ -1,17 +1,19 @@
-<img width="976" height="544" alt="image" src="https://github.com/user-attachments/assets/eb0d5fc7-4d7e-4e94-bf52-d1b6f433d3e1" />
+<h2>ARBOR • HE/IT/SHE • 25+ • AROSPEC PANSEXUAL • TAKEN</h2>
 
+> [!IMPORTANT]
+> This user has AUDHD, OCD, and Social Anxiety!
+>
+> I do not typically talk first, and need to be invited to conversations.
+  
+<img align="center" width="500" alt="an anthro brown dog laying on its stomach, legs kicked into the air" src="https://github.com/user-attachments/assets/eb0d5fc7-4d7e-4e94-bf52-d1b6f433d3e1" />
 
-<!--
-**wardentune/wardentune** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hello there! This profile will really only ever be seen by users on ponytown, so nice to meet you! Thanks for taking the time to click on me to get to know me. <3 I'm still figuring out how I'd like to make skins/avatars for ponies, and I mostly focus on trying to get fun markings.
 
-Here are some ideas to get you started:
+I am a **SYSTEM**, but the avatars used by my systemmates do not have specific tags stating that they are who is fronting. Assume that all skins are either kinshifts or someone else fronting, please! Treat me like the skin I'm in.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> If you'd like to see me elsewhere, I have an [artfight](https://artfight.net/~arborescreens), a [toyhou.se](https://toyhou.se/arborescreens), and a [tumblr](https://arborescreens.tumblr.com/)! My tumblr has a fun playlist I really like :>
+>
+> **Fandoms/Interests:** Check the toyhou.se profile, it has a huge list and I'm not gonna copy/paste all that.
+
+I do **not** have any solid DNI except pro-para (the typical big 3 harmful ones) people, and minors! You shouldn't be on the 18+ server anyway, get outta here!
+
