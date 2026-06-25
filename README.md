@@ -17,3 +17,4 @@ I am a **SYSTEM**, but the avatars used by my systemmates do not have specific t
 
 I do **not** have any solid DNI except pro-para (the typical big 3 harmful ones) people, and minors! You shouldn't be on the 18+ server anyway, get outta here!
 
+<img width="713" height="1120" alt="image" src="https://github.com/user-attachments/assets/e86a3c32-d244-4eaf-b294-13788f8df99a" />
