@@ -17,4 +17,6 @@ I am a **SYSTEM**, but the avatars used by my systemmates do not have specific t
 
 I do **not** have any solid DNI except pro-para (the typical big 3 harmful ones) people, and minors! You shouldn't be on the 18+ server anyway, get outta here!
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=phaasmaa&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
 <img width="713" height="1120" alt="image" src="https://github.com/user-attachments/assets/e86a3c32-d244-4eaf-b294-13788f8df99a" />
