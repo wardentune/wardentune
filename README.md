@@ -11,8 +11,9 @@
 <img src="https://github.com/user-attachments/assets/eb0d5fc7-4d7e-4e94-bf52-d1b6f433d3e1" width="25%"/>
 
 <br><br>
-Hello there! This profile will really only ever be seen by users on ponytown, so nice to meet you! Thanks for taking the time to click on me to get to know me. ♥ I'm still figuring out how I'd like to make skins/avatars for ponies, and I mostly focus on trying to get fun markings. We are a **SYSTEM**, but the avatars used by my systemmates do not have specific tags stating that they are who is fronting- unless they decide to disclose that. Assume that all skins are either kinshifts or someone else fronting, please! Treat me like the skin I'm in.
-    <img src="https://f2.toyhou.se/file/f2-toyhou-se/images/110909305_zCNGxWEjrswTFgJ.gif" height="60"><img alt="image" src="https://github.com/user-attachments/assets/7581c900-e650-4e4f-85e5-2f235cef45a9" />
+Hello there! This profile will really only ever be seen by users on ponytown, so nice to meet you! Thanks for taking the time to click on me to get to know me. ♥ I'm still figuring out how I'd like to make skins/avatars for ponies, and I mostly focus on trying to get fun markings. <br>We are a **SYSTEM**, but the avatars used by my systemmates do not have specific tags stating that they are who is fronting- unless they decide to disclose that. Assume that all skins are either kinshifts or someone else fronting, please! Treat me like the skin I'm in.
+<br>
+    <img src="https://github.com/user-attachments/assets/172deae5-93f5-46b1-83ec-051979734710" height="60">  <img alt="image" src="https://github.com/user-attachments/assets/7581c900-e650-4e4f-85e5-2f235cef45a9" />
 
 > If you'd like to see me elsewhere, I have an [artfight](https://artfight.net/~arborescreens), a [toyhou.se](https://toyhou.se/arborescreens), and a [tumblr](https://arborescreens.tumblr.com/)! My tumblr has a fun playlist I really like :>
 >
