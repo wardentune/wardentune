@@ -1,11 +1,12 @@
 <div align="center">
   <h2>ARBOR / BREN • HE/IT/SHE • 25+ • AROSPEC PANSEXUAL • TAKEN</h2>
+</div>
 
 > [!IMPORTANT]
 > This user has AUDHD, OCD, and Social Anxiety!
 >
 > I do not typically talk first, and need to be invited to conversations.
-  
+  <div align="center">
 <img align="center" width="500" alt="an anthro brown dog laying on its stomach, legs kicked into the air" src="https://github.com/user-attachments/assets/eb0d5fc7-4d7e-4e94-bf52-d1b6f433d3e1" />
 
 Hello there! This profile will really only ever be seen by users on ponytown, so nice to meet you! Thanks for taking the time to click on me to get to know me. <3 I'm still figuring out how I'd like to make skins/avatars for ponies, and I mostly focus on trying to get fun markings.
