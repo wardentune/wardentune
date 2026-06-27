@@ -1,4 +1,5 @@
-<h2>ARBOR / BREN • HE/IT/SHE • 25+ • AROSPEC PANSEXUAL • TAKEN</h2>
+<div align="center">
+  <h2>ARBOR / BREN • HE/IT/SHE • 25+ • AROSPEC PANSEXUAL • TAKEN</h2>
 
 > [!IMPORTANT]
 > This user has AUDHD, OCD, and Social Anxiety!
@@ -20,3 +21,4 @@ I do **not** have any solid DNI except pro-para (the typical big 3 harmful ones)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=phaasmaa&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="713" height="1120" alt="image" src="https://github.com/user-attachments/assets/e86a3c32-d244-4eaf-b294-13788f8df99a" />
+</div>
