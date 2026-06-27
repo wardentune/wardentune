@@ -10,10 +10,11 @@
 <img src="https://github.com/user-attachments/assets/efb24ec5-55a9-44c2-a5a2-b339e22ad985" width="25%" align="right" />
 <img src="https://github.com/user-attachments/assets/eb0d5fc7-4d7e-4e94-bf52-d1b6f433d3e1" width="50%"/>
 <br>
-Hello there! This profile will really only ever be seen by users on ponytown, so nice to meet you! Thanks for taking the time to click on me to get to know me. ♥ I'm still figuring out how I'd like to make skins/avatars for ponies, and I mostly focus on trying to get fun markings. <br>We are a **SYSTEM**, but the avatars used by my systemmates do not have specific tags stating that they are who is fronting- unless they decide to disclose that. Assume that all skins are either kinshifts or someone else fronting, please! Treat me like the skin I'm in.
+Hello there! This profile will really only ever be seen by users on ponytown, so nice to meet you! Thanks for taking the time to click on me to get to know me. ♥ I'm still figuring out how I'd like to make skins/avatars for ponies, and I mostly focus on trying to get fun markings. <br><br> We are a **SYSTEM**, but the avatars used by my systemmates do not have specific tags stating that they are who is fronting- unless they decide to disclose that. Assume that all skins are either kinshifts or someone else fronting, please! Treat me like the skin I'm in.
 <br>
 The dog decorating this profile is our primary fursona!<br>
-    <img alt="image" src="https://github.com/user-attachments/assets/7581c900-e650-4e4f-85e5-2f235cef45a9" />
+    <img src="https://github.com/user-attachments/assets/7581c900-e650-4e4f-85e5-2f235cef45a9" />
+    <br>
     
 > If you'd like to see me elsewhere, I have an [artfight](https://artfight.net/~arborescreens), a [toyhou.se](https://toyhou.se/arborescreens), and a [tumblr](https://arborescreens.tumblr.com/)!<br>
 > My tumblr has a fun playlist I really like :><br>
